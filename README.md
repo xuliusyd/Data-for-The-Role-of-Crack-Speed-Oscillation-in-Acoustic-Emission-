@@ -1,0 +1,1 @@
+# Data-for-The-Role-of-Crack-Speed-Oscillation-in-Acoustic-Emission-
